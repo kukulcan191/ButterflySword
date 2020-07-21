@@ -13,6 +13,7 @@
 第十章：https://shimo.im/docs/PYt9V6DQJdQvGKxH/ 
 第十一章：https://shimo.im/docs/TyXHyGPrytQwDVTp/ 
 第十二章（完结）：https://shimo.im/docs/JkhCTJHTyyVvHgxY/  
+番外：https://shimo.im/docs/VRxhDrh69rGjYDpw/ 
 
 仿生人宇宙脑洞
 娜迦：https://shimo.im/docs/DQD8WppGWXWrG8hH/ 
